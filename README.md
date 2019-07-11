@@ -16,4 +16,4 @@ occurred.
 > "Silver challenged Saviolo to fence him at ten weapons, beginning with the single rapier and rapier and dagger, which suggests that Silver had at least a passing familiarity with those weapons."
 
 * Silver has published his method of fencing in [Paradoxes of Defense](https://wiktenauer.com/wiki/Paradoxes_of_Defence_(Additional_MS_34192))
-* Saviolo has also published his own fencing method in [His Practice in Two Books](https://wiktenauer.com/wiki/His_Practise,_in_Two_Bookes_(Vincentio_Saviolo))
+* Saviolo could not be reached for comment, but his fencing practice is described in [His Practice in Two Books](https://wiktenauer.com/wiki/His_Practise,_in_Two_Bookes_(Vincentio_Saviolo))
