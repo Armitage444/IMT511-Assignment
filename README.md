@@ -13,6 +13,4 @@ occurred.
 
 ![duel](duel.jpg)
 
-"Silver challenged Saviolo to fence him at ten weapons, beginning with the single rapier 
-and rapier and dagger, which suggests that Silver had at least a passing familiarity with 
-those weapons."
+> "Silver challenged Saviolo to fence him at ten weapons, beginning with the single rapier and rapier and dagger, which suggests that Silver had at least a passing familiarity with those weapons."
