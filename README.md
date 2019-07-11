@@ -10,3 +10,9 @@ Saviolo to a public fencing match to demonstrate the superiority of his **Britis
 but even though they placarded London, Southwark, and Westminster with the challenge, and had 
 it carried to Saviolo personally on the appointed day, Silver states that _no_ formal match 
 occurred.
+
+![duel](duel.jpg)
+
+"Silver challenged Saviolo to fence him at ten weapons, beginning with the single rapier 
+and rapier and dagger, which suggests that Silver had at least a passing familiarity with 
+those weapons."
